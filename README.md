@@ -1,2 +1,2 @@
 # Tablouri-Licitatie
-Pagina cu lucrarile mele de arta, disponibile pentru licitatie
+Bun venit pe pagina mea de licitatie! Aici vei gasi lucrarile mele de arta unice, fiecare cu o poveste proprie.
